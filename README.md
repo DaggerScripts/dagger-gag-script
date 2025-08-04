@@ -1,2 +1,1 @@
-# dagger-gag-script
-Grow a Garden Spawner
+https://pastefy.app/9oseVNee/raw
